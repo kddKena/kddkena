@@ -3,7 +3,7 @@
 
 | **RAMA**         |
 | ---------------- |
-| **TikTok Music** |
+| **Apple Music** |
 | **TikTok Video** |
 
 | ЧАТ ТРАНСЛЯЦИИ                                               |
